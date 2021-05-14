@@ -1,5 +1,0 @@
-# Strogonoff De Frango
-
-### Ingredientes
-
-- 
